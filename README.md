@@ -6,3 +6,6 @@
 - 😄 Ele / Dele
 - ⚡ Eu gosto de jogar bola
 
+![](https://media1.tenor.com/m/G_V8maY1_GsAAAAd/chip-and-noice-siuuu.gif)
+
+
